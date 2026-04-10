@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @antarasudhir
 - 👀 I’m interested in pursuing a career in Data Analytics/Business Analytics
 - 🌱 I’m a graduate student at Boston University pursuing a MS in Applied Business Analytics
-- 📫 email: @antara.sudhir@gmail.com
+- 📫 Email: antara.sudhir@gmail.com
 - 📫 LinkedIn: https://www.linkedin.com/in/antarasudhir/
