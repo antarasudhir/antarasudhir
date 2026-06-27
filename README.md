@@ -14,4 +14,5 @@
 👀 Passionate about turning data into decisions that drive real business impact
 
 📫 Email: **[antara.sudhir@gmail.com](mailto:antara.sudhir@gmail.com)**
+
 🔗 LinkedIn: **[linkedin.com/in/antarasudhir](https://www.linkedin.com/in/antarasudhir/)**
